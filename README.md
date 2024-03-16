@@ -2,7 +2,7 @@
 - 👀 I’m interested in software development
 - 🌱 I’m currently learning eveything I can!
 - 💞️ I’m looking to collaborate on innovative projects
-- 📫 How to reach me [...](https://www.linkedin.com/in/simaosousa02/)
+- 📫 How to reach me simao_sousa_16@outlook.com
 - 😄 Pronouns: he/him
 
 <!---
